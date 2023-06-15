@@ -1,2 +1,2 @@
 # Trainning
-All NewVision  Trainnig Work
+All NewVision  Trainning Work
